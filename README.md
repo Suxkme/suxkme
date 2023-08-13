@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there i want to talk and go deeper 😏😏💋❤️‍🔥💗🤫
 
 <!--
 **Suxkme/suxkme** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
